@@ -3,7 +3,7 @@
 **`Rad Digital Media Expert (Designer/Developer)`**
 
 # 💫 About Me:
-The coolest and rad one person studio when it comes to digital media design and development.<br><br>📩 How to reach me for projects or inquiries or just anything UX/UI or Front End Development:<br>    •  Twitter: @m_2studios<br>    •  Instagram: @m2studios<br>    •  Email: hello.m2studios@gmail.com<br><br>⚡ Fun fact : The person behind M² STUDIOS loves watching movies, traveling to different places, capturing beautiful photos, listening to music (especially heavy metal, edm, rap/hiphop), <br>and playing video and computer games.  
+The coolest and rad one person studio when it comes to digital media design and development.<br><br>📩 How to reach me for projects or inquiries or just anything UX/UI or Front End Development:<br>    •  Twitter: @m_2studios<br>    •  Instagram: @m2studios<br>    •  Email: hello.m2studios@gmail.com<br><br>⚡ Fun fact : The person behind M² STUDIOS loves watching movies, traveling to different places, capturing beautiful photos, listening to music (especially heavy metal, edm, rap/hiphop), and playing video and computer games.  
 
 
 ## 🌐 Socials:
